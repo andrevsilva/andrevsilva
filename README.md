@@ -1,6 +1,6 @@
 # Hi 👋🏽
 
-Me chamo André, sou **Desenvolvedor Front-end** com 4 anos de experiência e apaixonado pelo que faço. 
+Me chamo André, sou **Desenvolvedor Front-end** com 9 anos de experiência e apaixonado pelo que faço. 
 Estou em busca de novas oportunidades e desafios 🤘🏽
 
 
